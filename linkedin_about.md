@@ -1,0 +1,1 @@
+Estudiante de Psicología de la Universidad de Lima con interés en psicología organizacional y gestión del talento humano. Me apasiona comprender el comportamiento en las organizaciones para promover ambientes de trabajo saludables y contribuir al desarrollo personal y profesional de los equipos. Busco oportunidades para aprender y crecer en el ámbito organizacional.

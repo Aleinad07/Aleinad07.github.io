@@ -1,0 +1,1 @@
+En mis tiempos libres me gusta tejer a crochet, escuchar música, ir a conciertos, cocinar, jugar con mi consola 3ds Xl, resolver sudoku, leer y pasar tiempo con mis seres queridos
